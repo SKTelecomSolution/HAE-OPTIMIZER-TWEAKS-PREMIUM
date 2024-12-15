@@ -2,7 +2,7 @@
 
 Best tool for optimization, only pay 3 usd for this tool!!!!
 
-Best obf, deobf in 2 minutes!!!!
+Best obf, deobfed in 2 minutes!!!!
 
 # Contribution
 
